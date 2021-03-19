@@ -8,4 +8,5 @@ Ways to Make Money as a Developer
 6. Contracting
 7. Bounties
 8. having a website or a service
+
 https://www.youtube.com/watch?v=18skg9IHB18
